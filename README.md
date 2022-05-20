@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JesusWo
+- 👋 Hi, I’m @JoWoch
 - 👀 I’m interested in Mathematik ooh
 - 🌱 I’m currently learning Mathematik
 - 💞️ I’m looking to collaborate on mathematik
